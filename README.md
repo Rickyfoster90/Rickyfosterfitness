@@ -1,2 +1,2 @@
 # Rickyfosterfitness
-Online coaching/nutritional advice 
+Online coaching/Nutrional advice/Lifestyle
